@@ -3,7 +3,7 @@ seo friendly australian business directory - google popular first to second page
 
 
 Business Directories -- author jiantan29@gmail.com
-Free free, all purpose, don't deceive license.
+All free, all purpose, don't deceive license.
 
 
 Popular
